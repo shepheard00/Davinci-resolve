@@ -1,4 +1,4 @@
-#   !GitHub All Releases
+#   !Davinci Resolve FULL FREE
   
  ![images (1)](https://github.com/shepheard00/Davinci-resolve/assets/165431909/29bbff21-4fa5-4b9a-92d1-23ad6e307a63)
  
